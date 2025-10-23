@@ -4,4 +4,6 @@
 ![Screenshot_2025-10-22-17-56-50-303_com example efgranking](https://github.com/user-attachments/assets/d17586de-fc8e-4368-b822-afad821bb29d)
 ![Screenshot_2025-10-22-17-57-31-751_com example no tengo idea](https://github.com/user-attachments/assets/38eefb52-7db9-4ad8-98b9-ef12a68360d8)
 ![Screenshot_2025-10-22-17-57-40-384_com example no tengo idea](https://github.com/user-attachments/assets/feaa2a22-5098-4ee7-a3fd-3323748280a0)
-![Screenshot_2025-10-22-17-57-51-607_com example no tengo idea](https://github.com/user-attachments/assets/785457e7-2721-4203-9adb-e8d50c3a7943)
+![Screenshot_2025-10-22-17-57-51-607_com example no tengo idea](https://github.com/user-attachments/assets/785457e7-2721-4203-9adb-e8d50c3a7943)![Screenshot_2025-10-22-18-01-04-352_com example no tengo idea](https://github.com/user-attachments/assets/05d19cbb-3b4c-4d50-9355-ee84a3e05e5c)
+![Screenshot_2025-10-22-17-59-28-679_com example no tengo idea](https://github.com/user-attachments/assets/d599452b-4947-4a22-a693-1ae79cf14dce)
+
